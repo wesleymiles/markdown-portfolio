@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+How can i best evangelize and get others to engage with **Hospicing Modernity**? I want to share it and spout it from the _rooftops_, but I'd probably be _tomoatoed_ by the masses. 
